@@ -1,0 +1,2 @@
+# skip-intro-pour-les-fous-du-drama-
+Skip Intro créé spécialement pour les fous du drama par Martin (￣▽￣)
